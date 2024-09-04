@@ -9,6 +9,8 @@ Qwant Browser: https://www.qwant.com/?l=en
 
 Startpage Browser: https://www.startpage.com/en/
 
+https://lax1dude.net/
+
 Best Minecraft Link: https://eaglercraft.ru/
 
 tlochsta Minecraft : https://astronetclient.pages.dev/compiled/web/  
