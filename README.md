@@ -1,24 +1,28 @@
 # Exploited Links
 Exploits:
 https://chrose.netlify.app/?
- 
-Tor Browser: https://support.torproject.org/glossary/web-browser/
 
-Qwant Browser: https://www.qwant.com/?l=en
+ Browsers :
+    Tor Browser: https://support.torproject.org/glossary/web-browser/
 
-Startpage Browser: https://www.startpage.com/en/
+    Qwant Browser: https://www.qwant.com/?l=en
 
-Best Minecraft Link: https://eaglercraft.ru/
+    Startpage Browser: https://www.startpage.com/en/
 
-Other Minecraft Links: https://astronetclient.pages.dev/compiled/web/  https://d1tm91r4ytbt54.cloudfront.net/2779cbcb-a02f-48a3-9e2e-95a8d123d165/1685483461665/web/index.html
+Games :
+    Best Minecraft Link: https://eaglercraft.ru/
 
-Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html
+    Other Minecraft Links: https://astronetclient.pages.dev/compiled/web/  https://d1tm91r4ytbt54.cloudfront.net/2779cbcb-a02f-48a3-9e2e-95a8d123d165/1685483461665/web/index.html
 
-Iron Order (i gottchu colt) https://www.ironorder1919.com/
+    Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html
 
-Free Movies: https://www.braflix.ru/
+    Iron Order (i gottchu colt) https://www.ironorder1919.com/
 
-Snapchat: https://web.snapchat.com/
+Movies :
+    Free Movies: https://www.braflix.ru/
 
-Discord: https://discord.com/login
+Social Media :
+    Snapchat: https://web.snapchat.com/
+
+    Discord: https://discord.com/login
 
