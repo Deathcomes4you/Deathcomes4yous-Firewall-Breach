@@ -11,7 +11,8 @@ Startpage Browser: https://www.startpage.com/en/
 
 Best Minecraft Link: https://eaglercraft.ru/
 
-Minecraft Links: https://astronetclient.pages.dev/compiled/web/  https://d1tm91r4ytbt54.cloudfront.net/2779cbcb-a02f-48a3-9e2e-95a8d123d165/1685483461665/web/index.html
+tlochsta Minecraft : https://astronetclient.pages.dev/compiled/web/  
+Minecraft 1.5.2 https://d1tm91r4ytbt54.cloudfront.net/2779cbcb-a02f-48a3-9e2e-95a8d123d165/1685483461665/web/index.html
 
 Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html
 
