@@ -2,9 +2,6 @@
 Exploits:
 https://chrose.netlify.app/?
 
- 
-Tor Browser: https://support.torproject.org/glossary/web-browser/
-
 Qwant Browser: https://www.qwant.com/?l=en
 
 Startpage Browser: https://www.startpage.com/en/
@@ -18,11 +15,9 @@ Minecraft 1.5.2 https://d1tm91r4ytbt54.cloudfront.net/2779cbcb-a02f-48a3-9e2e-95
 
 Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html
 
-Bonk.io: https://bonk.io/
-
 Iron Order (i gottchu colt) https://www.ironorder1919.com/
 
-Free Movies: https://www.braflix.ru/
+Free Movies: 
 
 Snapchat: https://web.snapchat.com/
 
