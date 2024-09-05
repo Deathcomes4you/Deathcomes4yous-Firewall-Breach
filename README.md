@@ -2,6 +2,8 @@
 Exploits:
 https://chrose.netlify.app/?
 
+Google Classroom: classroom.google.com
+
 Qwant Browser: https://www.qwant.com/?l=en
 
 Startpage Browser: https://www.startpage.com/en/
