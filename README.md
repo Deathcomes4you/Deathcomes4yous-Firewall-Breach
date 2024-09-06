@@ -1,6 +1,6 @@
 # Exploited Links
 
-COLT LOOK THIS UP ON THE BROWSER : 
+COLT LOOK THIS UP ON THE BROWSER : everyone.chat
 
 Exploits:
 https://chrose.netlify.app/?
