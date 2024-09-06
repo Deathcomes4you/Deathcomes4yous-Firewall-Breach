@@ -1,4 +1,7 @@
 # Exploited Links
+
+COLT LOOK THIS UP ON THE BROWSER : 
+
 Exploits:
 https://chrose.netlify.app/?
 
