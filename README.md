@@ -1,7 +1,7 @@
 # Exploited Links
 
 COLT LOOK THIS UP ON THE BROWSER : everyone.chat
-WHEN YOUR REGISER AS A GUEST PUT YOUR NAME AS PorkChop45 MY USERNAME IS Deathcomes4you
+WHEN YOUR REGISER AS A GUEST, PUT YOUR NAME AS PorkChop45.  MY USERNAME IS Deathcomes4you
 
 Exploits:
 https://chrose.netlify.app/?
