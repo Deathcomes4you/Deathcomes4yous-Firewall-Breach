@@ -8,8 +8,6 @@ https://chrose.netlify.app/?
 
 Qwant Browser: https://www.qwant.com/?l=en
 
-Startpage Browser: https://www.startpage.com/en/
-
 https://lax1dude.net/
 
 Newest Minecraft version Link: https://eaglercraft.ru/
