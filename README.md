@@ -1,7 +1,7 @@
 # Deathcomes4you
 
 
-**_THE ALMIGHTY LINK:_** https://nettleweb.pages.dev/
+**_THE ALMIGHTY LINK🥇:_** https://nettleweb.pages.dev/
 
 
 
@@ -10,7 +10,7 @@ Qwant Browser: https://www.qwant.com/?l=en
 **Free Movies 🎥, Music 🎵, Books 📚, etc.** https://fmhy.net/
 
 
-***MINECRAFT LINKS***
+***MINECRAFT LINKS 🧱⛏***
 
 EaglerCraft link: https://lax1dude.net/
 
@@ -22,13 +22,13 @@ Minecraft 1.5.2 : https://d1tm91r4ytbt54.cloudfront.net/2779cbcb-a02f-48a3-9e2e-
 
 EaglerCraft: eaglercraft.net
 
-**OTHER GAMES**
+***OTHER GAMES🎮🕹***
 
 Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html
 
 Iron Order: https://www.ironorder1919.com/
 
-**SOCIAL MEDIA**
+***SOCIAL MEDIA📱***
 
 Snapchat: https://web.snapchat.com/
 
@@ -36,5 +36,5 @@ Discord: https://discord.com/login
 
 Reddit: https://reddit.com
 
-**TRAUMATIZE YOUR FRIENDS 😈** _viewer discretion is advised_  https://livegore.com/
+**TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  https://livegore.com/
 
