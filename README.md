@@ -10,7 +10,7 @@ _⬆CLICK FOR 3,000+ GAMES, UNBLOCKED GOOGLE, AND CHAT ROOM!⬆_
 
 ***MINECRAFT LINKS 🧱⛏***
 
-_choose the best link for you_ 🙂
+_⬇choose the best link for you⬇_ 🙂
 
 EaglerCraft link: https://lax1dude.net/
 
