@@ -1,13 +1,11 @@
 # Deathcomes4you
 
 
-**EXPLOITS**
+**_THE ALMIGHTY LINK:_** nettleweb.pages.dev/
 
-https://chrose.netlify.app/?
 
-**Qwant Browser**: https://www.qwant.com/?l=en
 
-**********USE IF GOOGLE IS BLOCKED ^
+Qwant Browser: https://www.qwant.com/?l=en
 
 **MINECRAFT LINKS**
 
@@ -33,5 +31,5 @@ Snapchat: https://web.snapchat.com/
 
 Discord: https://discord.com/login
 
-**TRAUMATIZE YOUR FRIENDS:**  https://livegore.com/
+**_TRAUMATIZE YOUR FRIENDS:_** _viewer descresion is advised_  https://livegore.com/
 
