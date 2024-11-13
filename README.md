@@ -41,6 +41,7 @@ Discord: ➡ https://discord.com/login
 Reddit: ➡ https://reddit.com
 
 **WARNING!!!!!!** _Caution when clicking on the link below, as it may redirect you to external websites that could potentially compromise your privacy or security_
+
 **TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  ➡ https://livegore.com/
 
 
