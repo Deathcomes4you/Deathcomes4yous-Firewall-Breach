@@ -30,6 +30,8 @@ Iron Order: ➡ https://www.ironorder1919.com/
 
 ***SOCIAL MEDIA📱***
 
+Spotify: ➡ https://open.spotify.com
+
 Snapchat: ➡ https://web.snapchat.com/
 
 Discord: ➡ https://discord.com/login
