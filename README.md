@@ -1,7 +1,7 @@
 # Deathcomes4you
 
 
-**_THE ALMIGHTY LINK:_** nettleweb.pages.dev/
+**_THE ALMIGHTY LINK:_** https://nettleweb.pages.dev/
 
 
 
