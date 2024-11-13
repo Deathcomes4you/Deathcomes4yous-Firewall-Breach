@@ -34,5 +34,7 @@ Snapchat: https://web.snapchat.com/
 
 Discord: https://discord.com/login
 
+Reddit: https://reddit.com
+
 **TRAUMATIZE YOUR FRIENDS 😈** _viewer discretion is advised_  https://livegore.com/
 
