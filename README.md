@@ -1,11 +1,11 @@
 # Deathcomes4you
 
 
-**_THE ALMIGHTY LINK🥇:_** https://nettleweb.pages.dev/
+**_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/
 
 _⬆CLICK FOR 3,000+ GAMES, UNBLOCKED GOOGLE, AND CHAT ROOM!⬆_
 
-**Free Movies 🎥, Music 🎵, Books 📚, etc.** https://fmhy.net/
+**Free Movies 🎥, Music 🎵, Books 📚, etc.** ➡ https://fmhy.net/
 
 
 ***MINECRAFT LINKS 🧱⛏***
@@ -24,17 +24,17 @@ EaglerCraft: eaglercraft.net
 
 ***OTHER GAMES🎮🕹***
 
-Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html -doesn't work on school wifi
+Roblox: ➡ https://now.gg/apps/roblox-corporation/5349/roblox.html -doesn't work on school wifi
 
-Iron Order: https://www.ironorder1919.com/
+Iron Order: ➡ https://www.ironorder1919.com/
 
 ***SOCIAL MEDIA📱***
 
-Snapchat: https://web.snapchat.com/
+Snapchat: ➡ https://web.snapchat.com/
 
-Discord: https://discord.com/login
+Discord: ➡ https://discord.com/login
 
-Reddit: https://reddit.com
+Reddit: ➡ https://reddit.com
 
-**TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  https://livegore.com/
+**TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  ➡ https://livegore.com/
 
