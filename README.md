@@ -33,3 +33,5 @@ Snapchat: https://web.snapchat.com/
 
 Discord: https://discord.com/login
 
+**TRAMATIZE YOUR FRIENDS:**  https://livegore.com/
+
