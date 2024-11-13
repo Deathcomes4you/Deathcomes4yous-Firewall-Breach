@@ -3,10 +3,6 @@
 
 **_THE ALMIGHTY LINK🥇:_** https://nettleweb.pages.dev/
 
-
-
-Qwant Browser: https://www.qwant.com/?l=en
-
 **Free Movies 🎥, Music 🎵, Books 📚, etc.** https://fmhy.net/
 
 
