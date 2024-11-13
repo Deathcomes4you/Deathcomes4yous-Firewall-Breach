@@ -23,7 +23,7 @@ Newest Minecraft version Link: https://eaglercraft.ru/
  
 Minecraft 1.5.2 : https://d1tm91r4ytbt54.cloudfront.net/2779cbcb-a02f-48a3-9e2e-95a8d123d165/1685483461665/web/index.html
 
-EaglerCraft: eaglercraft.net
+EaglerCraft: https://eaglercraft.net
 
 ***OTHER GAMES🎮🕹***
 
