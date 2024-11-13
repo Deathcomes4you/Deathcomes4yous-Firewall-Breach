@@ -1,10 +1,11 @@
 # Deathcomes4you
 
 
+**EXPLOITS**
 
 https://chrose.netlify.app/?
 
-Qwant Browser: https://www.qwant.com/?l=en
+**Qwant Browser**: https://www.qwant.com/?l=en
 
 **MINECRAFT LINKS**
 
