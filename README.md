@@ -7,9 +7,10 @@
 
 Qwant Browser: https://www.qwant.com/?l=en
 
-**Free Movies, Books, Music, etc.** https://fmhy.net/
+**Free Movies, Music, Books, etc.** https://fmhy.net/
 
-**MINECRAFT LINKS**
+
+***MINECRAFT LINKS***
 
 EaglerCraft link: https://lax1dude.net/
 
