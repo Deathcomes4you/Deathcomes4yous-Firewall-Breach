@@ -40,6 +40,8 @@ Discord: ➡ https://discord.com/login
 
 Reddit: ➡ https://reddit.com
 
+Yahoo Mail: ➡ https://mail.yahoo.com
+
 **OTHER**
 
 File Opener (beta): ➡ https://filext.com
