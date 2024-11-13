@@ -34,6 +34,8 @@ Spotify: ➡ https://open.spotify.com
 
 Snapchat: ➡ https://web.snapchat.com/
 
+TikTok: ➡ https://tiktok.com
+
 Discord: ➡ https://discord.com/login
 
 Reddit: ➡ https://reddit.com
