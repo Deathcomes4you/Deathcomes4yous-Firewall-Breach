@@ -12,6 +12,8 @@ Qwant Browser: https://www.qwant.com/?l=en
 
 ***MINECRAFT LINKS 🧱⛏***
 
+_choose the best link for you_ 🙂
+
 EaglerCraft link: https://lax1dude.net/
 
 Newest Minecraft version Link: https://eaglercraft.ru/
@@ -24,7 +26,7 @@ EaglerCraft: eaglercraft.net
 
 ***OTHER GAMES🎮🕹***
 
-Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html
+Roblox: https://now.gg/apps/roblox-corporation/5349/roblox.html -doesn't work on school wifi
 
 Iron Order: https://www.ironorder1919.com/
 
