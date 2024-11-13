@@ -7,7 +7,7 @@
 
 Qwant Browser: https://www.qwant.com/?l=en
 
-**Free Movies, Music, Books, etc.** https://fmhy.net/
+**Free Movies 🎥, Music 🎵, Books 📚, etc.** https://fmhy.net/
 
 
 ***MINECRAFT LINKS***
@@ -34,5 +34,5 @@ Snapchat: https://web.snapchat.com/
 
 Discord: https://discord.com/login
 
-**TRAUMATIZE YOUR FRIENDS:** _viewer discretion is advised_  https://livegore.com/
+**TRAUMATIZE YOUR FRIENDS 😈** _viewer discretion is advised_  https://livegore.com/
 
