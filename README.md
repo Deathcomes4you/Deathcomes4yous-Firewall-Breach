@@ -42,3 +42,5 @@ Reddit: ➡ https://reddit.com
 
 **TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  ➡ https://livegore.com/
 
+**WARNING!!!!!!** If you go on the website above, it might redirect you to another website
+
