@@ -7,6 +7,8 @@ https://chrose.netlify.app/?
 
 **Qwant Browser**: https://www.qwant.com/?l=en
 
+**********USE IF GOOGLE IS BLOCKED ^
+
 **MINECRAFT LINKS**
 
 EaglerCraft link: https://lax1dude.net/
