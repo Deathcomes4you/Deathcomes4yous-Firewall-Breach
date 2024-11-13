@@ -42,7 +42,7 @@ Reddit: ➡ https://reddit.com
 
 **OTHER**
 
-File Opener: https://filext.com
+File Opener (beta): ➡ https://filext.com
 
 **WARNING!!!!!!** _Caution when clicking on the link below, as it may redirect you to external websites that could potentially compromise your privacy or security_
 
