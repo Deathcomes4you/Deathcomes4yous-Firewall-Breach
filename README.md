@@ -1,5 +1,4 @@
 # Deathcomes4you’s Firewall Breach
-https://brave.com
 
 **_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/
 
