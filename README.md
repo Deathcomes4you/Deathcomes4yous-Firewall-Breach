@@ -4,9 +4,11 @@
 
 **BROWSERS🌐**
 
-https://croxyproxy.com
-
 Qwant Browser: ➡  https://qwant.com
+
+**PROXYS👽**
+
+Croxy ➡ https://croxyproxy.com
 
 **_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/ **(GOOGLE DWOSW)**
 
