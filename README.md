@@ -1,8 +1,10 @@
 # Deathcomes4you’s Firewall Breach
 
+**DWOSW means "DOESN'T WORK ON SCHOOL WIFI"**
+
 Qwant Browser: ➡  https://qwant.com
 
-**_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/
+**_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/ **(GOOGLE DWOSW)**
 
 _⬆CLICK FOR 3,000+ GAMES, UNBLOCKED GOOGLE, AND CHAT ROOM!⬆_
 
@@ -27,7 +29,7 @@ EaglerCraft: https://eaglercraft.net
 
 ***OTHER GAMES🎮🕹***
 
-Roblox: ➡ https://now.gg/apps/roblox-corporation/5349/roblox.html ➡ (doesn't work on school wifi)
+Roblox: ➡ https://now.gg/apps/roblox-corporation/5349/roblox.html ➡ **(DWOSW)**
 
 Iron Order: ➡ https://www.ironorder1919.com/
 
@@ -37,13 +39,13 @@ Spotify: ➡ https://open.spotify.com
 
 Snapchat: ➡ https://web.snapchat.com/
 
-TikTok: ➡ https://tiktok.com ➡ (doesn't work on school wifi)
+TikTok: ➡ https://tiktok.com ➡ **(DWOSW)**
 
 Discord: ➡ https://discord.com/login
 
 Reddit: ➡ https://reddit.com
 
-Netflix: ➡ https://netflix.com ➡ (doesn't work on school wifi)
+Netflix: ➡ https://netflix.com ➡ **(DWOSW)**
 
 **OTHER**
 
@@ -54,6 +56,6 @@ File Opener (beta): ➡ https://filext.com
 
 **WARNING ⚠** _Caution when clicking on the link below, as it may redirect you to external websites that could potentially compromise your privacy or security_
 
-**TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  ➡ https://livegore.com/
+**TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  ➡ https://livegore.com/ **(DWOSW)**
 
 
