@@ -2,6 +2,10 @@
 
 **DWOSW means "_DOESN'T WORK ON SCHOOL WIFI_"**
 
+**BROWSERS🌐**
+
+https://duckduckgo.com
+
 Qwant Browser: ➡  https://qwant.com
 
 **_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/ **(GOOGLE DWOSW)**
