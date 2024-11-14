@@ -27,7 +27,7 @@ EaglerCraft: https://eaglercraft.net
 
 ***OTHER GAMES🎮🕹***
 
-Roblox: ➡ https://now.gg/apps/roblox-corporation/5349/roblox.html -doesn't work on school wifi
+Roblox: ➡ https://now.gg/apps/roblox-corporation/5349/roblox.html (doesn't work on school wifi)
 
 Iron Order: ➡ https://www.ironorder1919.com/
 
@@ -37,7 +37,7 @@ Spotify: ➡ https://open.spotify.com
 
 Snapchat: ➡ https://web.snapchat.com/
 
-TikTok: ➡ https://tiktok.com
+TikTok: ➡ https://tiktok.com (doesn't work on school wifi)
 
 Discord: ➡ https://discord.com/login
 
