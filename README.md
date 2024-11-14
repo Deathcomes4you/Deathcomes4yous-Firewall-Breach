@@ -1,6 +1,7 @@
 # Deathcomes4you’s Firewall Breach
 
-
+https://quant.com
+https://quantbrowser.com
 
 **_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/
 
