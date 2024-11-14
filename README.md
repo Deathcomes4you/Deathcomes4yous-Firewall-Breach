@@ -4,7 +4,7 @@
 
 **BROWSERS🌐**
 
-https://duckduckgo.com
+https://croxyproxy.com
 
 Qwant Browser: ➡  https://qwant.com
 
