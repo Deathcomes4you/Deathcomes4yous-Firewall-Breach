@@ -43,6 +43,7 @@ Discord: ➡ https://discord.com/login
 
 Reddit: ➡ https://reddit.com
 
+Netflix: ➡ https://netflix.com
 
 **OTHER**
 
