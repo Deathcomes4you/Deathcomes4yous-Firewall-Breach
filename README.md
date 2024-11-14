@@ -1,6 +1,6 @@
 # Deathcomes4you’s Firewall Breach
 
-**DWOSW means "DOESN'T WORK ON SCHOOL WIFI"**
+**DWOSW means "_DOESN'T WORK ON SCHOOL WIFI_"**
 
 Qwant Browser: ➡  https://qwant.com
 
