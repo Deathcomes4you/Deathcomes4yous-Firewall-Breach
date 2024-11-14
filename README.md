@@ -1,5 +1,7 @@
 # Deathcomes4you’s Firewall Breach
-https://qwant.com
+
+Qwant Browser: ➡  https://qwant.com
+
 **_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/
 
 _⬆CLICK FOR 3,000+ GAMES, UNBLOCKED GOOGLE, AND CHAT ROOM!⬆_
