@@ -64,8 +64,15 @@ File Opener (beta): ➡ https://filext.com
 
 
 
-**WARNING ⚠** _Caution when clicking on the link below, as it may redirect you to external websites that could potentially compromise your privacy or security_
 
-**TRAUMATIZE YOUR FRIENDS 🔪🩸😈** _viewer discretion is advised_  ➡ https://livegore.com/ **(DWOSW)**
 
+
+**INFO** 
+
+Minecraft:
+I have discovered that there is a way to import worlds onto your school chromebook via USB flash drive. If you have a copy of these worlds on a USB flash drive, you can simply plug it into your school chromebook, click "Create New World", and then go ahead and click on "Import Vanilla World". After that, select the file of the world you want to play on, and there you go.
+
+Sadly, I have yet to find out a way to download world files from you school chromebook onto a USB flash drive. This is an issue because everytime you try and download something while in the *CollageBoard* exploit, it vanishes from your downloads folder before you even get the chance to open it. 
+
+Hopefully sometime in the future I will discover a method that will allow you to save worlds, letting you play in between periods. Trust me, I understand how frustrating it can be when you've progressed so far in the world and then either your chromebook dies or you suddenly have to exit *CollageBoard*. It sucks, maybe I can figure out another exploit that works better...
 
