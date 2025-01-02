@@ -79,6 +79,7 @@
 
 ###### Hopefully, in the future, I will discover a method that allows you to save worlds, so you can play in between periods. Trust me, I understand how frustrating it can be when you've made significant progress in the world, only for your Chromebook to die or for you to suddenly have to exit CollageBoard. It’s really annoying, but maybe I can figure out another exploit that works better...
 
+###### I’m not sure how two players would be able to play Minecraft together in different classes. This is because you need a code to join the other player, and without using other devices, there’s no way for one player to share the code with the other. If you go into the chat room, the code has already expired. This will be a problem in the upcoming semester.
 
 ### **D.W.O.S.W**  
 ##### -DOESN'T WORK ON SCHOOL WIFI
