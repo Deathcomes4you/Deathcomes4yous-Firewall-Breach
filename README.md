@@ -1,4 +1,4 @@
-### Deathcomes4you’s Firewall Breach
+### Collin’s Firewall Breach
 
 ## **D.W.O.S.W** means **"_DOESN'T WORK ON SCHOOL WIFI_"**
 
