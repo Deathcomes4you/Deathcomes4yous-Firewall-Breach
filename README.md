@@ -2,6 +2,7 @@
 
 ## **D.W.O.S.W** means **"_DOESN'T WORK ON SCHOOL WIFI_"**
 
+
 #### **BROWSERS🌐**
 
 ###### Qwant Browser: ➡  https://qwant.com
@@ -27,9 +28,9 @@
 
 #### Newest Minecraft version Link: https://eaglercraft.ru/
 
-##### EaglerCraft: https://eaglercraft.net
+###### EaglerCraft: https://eaglercraft.net
 
-##### EaglerCraft link: https://lax1dude.net/
+###### EaglerCraft link: https://lax1dude.net/
 
 ###### Smooth Minecraft: https://astronetclient.pages.dev/compiled/web/  
  
@@ -72,9 +73,13 @@
 # **INFO** 
 
 ### Minecraft:
-###### I have discovered that there is a way to import worlds onto your school chromebook via USB flash drive. If you have a copy of these worlds on a USB flash drive, you can simply plug it into your school chromebook, click **"Create New World"**, and then go ahead and click on **"Import Vanilla World"**. After that, select the file of the world you want to play on, and there you go.
+###### I have discovered a way to import worlds onto your school Chromebook via a USB flash drive. If you have a copy of the world on the USB flash drive, simply plug it into your school Chromebook, click "Create New World", and then select "Import Vanilla World". After that, choose the file of the world you want to play, and you're all set.
 
-###### Sadly, I have yet to find out a way to download world files from you school chromebook onto a USB flash drive. This is an issue because everytime you try and download something while in the *CollageBoard* exploit, it vanishes from your downloads folder before you even get the chance to open it. 
+###### Unfortunately, I have yet to find a way to download world files from your school Chromebook onto a USB flash drive. This is an issue because every time you try to download something while using the CollageBoard exploit, it disappears from your downloads folder before you even have a chance to open it.
 
-###### Hopefully sometime in the future I will discover a method that will allow you to save worlds, letting you play in between periods. Trust me, I understand how frustrating it can be when you've progressed so far in the world and then either your chromebook dies or you suddenly have to exit *CollageBoard*. It sucks, maybe I can figure out another exploit that works better...
+###### Hopefully, in the future, I will discover a method that allows you to save worlds, so you can play in between periods. Trust me, I understand how frustrating it can be when you've made significant progress in the world, only for your Chromebook to die or for you to suddenly have to exit CollageBoard. It’s really annoying, but maybe I can figure out another exploit that works better...
 
+
+### **D.W.O.S.W**  
+##### -DOESN'T WORK ON SCHOOL WIFI
+###### D.W.O.S.W. simply means that a specific website will not work while you are connected to the school's Wi-Fi. These websites are blocked on all devices through your county's firewall. This means that if you connect to the school Wi-Fi with your phone and try to access these websites, they will most likely be blocked. However, you can still access these websites as long as you are connected to a Wi-Fi network outside of the school.
