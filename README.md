@@ -70,7 +70,7 @@ File Opener (beta): ➡ https://filext.com
 **INFO** 
 
 Minecraft:
-I have discovered that there is a way to import worlds onto your school chromebook via USB flash drive. If you have a copy of these worlds on a USB flash drive, you can simply plug it into your school chromebook, click "Create New World", and then go ahead and click on "Import Vanilla World". After that, select the file of the world you want to play on, and there you go.
+I have discovered that there is a way to import worlds onto your school chromebook via USB flash drive. If you have a copy of these worlds on a USB flash drive, you can simply plug it into your school chromebook, click **"Create New World"**, and then go ahead and click on **"Import Vanilla World"**. After that, select the file of the world you want to play on, and there you go.
 
 Sadly, I have yet to find out a way to download world files from you school chromebook onto a USB flash drive. This is an issue because everytime you try and download something while in the *CollageBoard* exploit, it vanishes from your downloads folder before you even get the chance to open it. 
 
