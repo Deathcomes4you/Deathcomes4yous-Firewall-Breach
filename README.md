@@ -1,16 +1,16 @@
 ### Deathcomes4you’s Firewall Breach
 
-## **DWOSW** means **"_DOESN'T WORK ON SCHOOL WIFI_"**
+## **D.W.O.S.W** means **"_DOESN'T WORK ON SCHOOL WIFI_"**
 
-### **BROWSERS🌐**
+#### **BROWSERS🌐**
 
 ###### Qwant Browser: ➡  https://qwant.com
 
-### **PROXYS👽**
+#### **PROXYS👽**
 
 ###### Croxy ➡ https://croxyproxy.com
 
-### **_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/ **(GOOGLE [sometimes] DWOSW)**
+#### **_THE ALMIGHTY LINK🥇:_** ➡ https://nettleweb.pages.dev/ **(GOOGLE [sometimes] D.W.O.S.W)**
 
 ###### _⬆CLICK FOR 3,000+ GAMES, UNBLOCKED GOOGLE, AND CHAT ROOM!⬆_
 
@@ -37,7 +37,7 @@
 
 ### ***OTHER GAMES🎮🕹***
 
-###### Roblox: ➡ https://now.gg/apps/roblox-corporation/5349/roblox.html ➡ **(DWOSW)**
+###### Roblox: ➡ https://now.gg/apps/roblox-corporation/5349/roblox.html ➡ **(D.W.O.S.W)**
 
 ###### Iron Order: ➡ https://www.ironorder1919.com/
 
@@ -51,17 +51,17 @@
 
 ###### Snapchat: ➡ https://web.snapchat.com/
 
-###### TikTok: ➡ https://tiktok.com ➡ **(DWOSW)**
+###### TikTok: ➡ https://tiktok.com ➡ **(D.W.O.S.W)**
 
 ###### Discord: ➡ https://discord.com/login
 
 ###### Reddit: ➡ https://reddit.com
 
-###### Netflix: ➡ https://netflix.com ➡ **(DWOSW)**
+###### Netflix: ➡ https://netflix.com ➡ **(D.W.O.S.W)**
 
-**OTHER**
+##### **OTHER**
 
-File Opener (beta): ➡ https://filext.com
+###### File Opener (beta): ➡ https://filext.com
 
 
 
