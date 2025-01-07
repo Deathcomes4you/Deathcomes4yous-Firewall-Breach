@@ -50,11 +50,11 @@
 
 ###### 🎵 Spotify: ➡ https://open.spotify.com
 
-###### 🟨👻Snapchat: ➡ https://web.snapchat.com/
+##### 👻Snapchat: ➡ https://web.snapchat.com/
 
-###### 🟥⬛🟦TikTok: ➡ https://tiktok.com ➡ **(D.W.O.S.W)**
+###### TikTok: ➡ https://tiktok.com ➡ **(D.W.O.S.W)**
 
-###### 🟪🤖 Discord: ➡ https://discord.com/login
+###### Discord: ➡ https://discord.com/login
 
 ###### Reddit: ➡ https://reddit.com
 
